@@ -5,4 +5,4 @@ It's worth mentioning that the author don't own the whole copywrite to the entir
 You can access the folder via onedrive:
 
 
-MP1: InfiniteMaze https://1drv.ms/f/s!ApZpz573J9bkgUMDXD6Z_5xpGcXv?e=edMyn7
+MP1: InfiniteMaze https://1drv.ms/f/s!ApZpz573J9bkgUPO84HrXyo3LHPp?e=PDLyQL
